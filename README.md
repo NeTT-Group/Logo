@@ -1,2 +1,2 @@
 # Logo
-The current NeTT Group logo!
+The current NeTT logo!
